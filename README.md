@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Javascript**
 
-- 📫 How to reach me **niveditaupadhayay2014@gmail.com**
+- 📫 How to reach me **niveditaupadhayay2023@gmail.com**
 
 - ⚡ Fun fact **I think I am serious all the time.**
 
